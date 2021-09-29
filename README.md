@@ -13,7 +13,7 @@ _Zgodnie z Waszymi głosami oraz gustem Bartosza będzie to iście męska rozryw
 
 _Ostatecznie wybrany plan wkrótce_
 
-# Część 3 KOLACJA W KLUBIE WIERZYCA - WSZYSCY
+# Część 3 KOLACJA W KLUBIE WIEŻYCA - WSZYSCY
 ## zbiórka o 19:00, [w tym miejscu](https://www.google.com/maps/place/Klub+Wie%C5%BCyca/@52.2327881,21.0246812,717m/data=!3m2!1e3!4b1!4m5!3m4!1s0x471eccf7a3ddf803:0x8a8e21678b518509!8m2!3d52.2328533!4d21.0268323?hl=pl-PL)
 Po kilku godzinach pełnych wrażeń posilimy się w bardzo klimatycznym i kameralnym miejscu.
 Będziemy mieli własną salkę w piwnicy, i zjemy kolację z 2 dań: zupa + kotlet (drobiowy lub schabowy).
