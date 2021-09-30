@@ -4,8 +4,6 @@ początek gry jest planowany na 15:00 (ważna punktualność)
 Naszym gospodarzem będzie Labsektor - firma z polecenia, godna zaufania!
 **WAŻNE: BUTY MOGĄ ZOSTAĆ POBRUDZONE ZMYWALNĄ FARBĄ, WIĘC WARTO TO UWZLGĘDNIĆ**
 
-[przejazd z części 1 do części 2](https://www.google.pl/maps/dir/Paintball+Warszawa+Hala+Labsektor,+Zabraniecka+82,+03-787+Warszawa/Poniat%C3%B3wka,+Warszawa/@52.2493233,21.0346529,14z/am=t/data=!4m18!4m17!1m5!1m1!1s0x471ecb5cf4a4b665:0x4197eac84cfaf00f!2m2!1d21.0675929!2d52.2622001!1m5!1m1!1s0x471ecc5471e27aaf:0x81b063da1eeaded9!2m2!1d21.0420833!2d52.2365285!2m3!6e0!7e2!8j1633193400!3e3)
-
 # Część 2 WYCZYN - ZADANIE DLA BARTOSZA: PRZECZYTAJ DOKŁADNIE MISTERNY PLAN
 dzielimy się na 2 grupy:
 
