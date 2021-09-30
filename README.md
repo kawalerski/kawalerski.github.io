@@ -32,5 +32,5 @@ Będziemy mieli własną salkę w piwnicy, i zjemy kolację z 2 dań: zupa + kot
 ## Kod na bramce: 222 klucz 2222, 4p.
 Ostatnie (planowe) miejsce naszej eskapady to zapewne znane wszystkim mieszkanie na ulicy Dobrej.
 Będzie to miejsce na rozmaite quizy/konkursy.
-Alkochol wysokoprocentowy w umiarkowanej ilości zapewnia gospodarz.
+Jedzenie (gorące danie - indyk z mango i ryżem) i alkochol wysokoprocentowy w umiarkowanej ilości zapewnia gospodarz.
 W celu zapokojenia większego apetytu ew. gustu piwnego/innego niż kawalerska wódeczka każdy powinien zatroszczyć się uprzednio sam.
